@@ -1,2 +1,2 @@
 # WatchFaces
-A collection of WearOS WatchFace Backgrounds
+A Collection of WearOS WatchFace Backgrounds
