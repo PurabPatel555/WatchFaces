@@ -14,6 +14,14 @@ Gynecologic Cancer Awareness Month (September) (Pen)
 
 ![Screenshot_1619736306](https://user-images.githubusercontent.com/71000952/116627938-187dad00-a91c-11eb-97dd-1875e51c27c2.png)
 
+Alzheimer's Awareness Month (January) (Mixed Medium)
+
+![Screenshot_1619762766](https://user-images.githubusercontent.com/71000952/116655846-ba6fba80-a959-11eb-9889-bb36d9e9cc31.png)
+
+World Hemophilia Day (April)
+
+![Screenshot_1619763066](https://user-images.githubusercontent.com/71000952/116655955-de330080-a959-11eb-9293-9538f56e962e.png)
+
 Pi Day (Monday, March 14) (Watercolor Brush)
 
 ![Screenshot_1619736606](https://user-images.githubusercontent.com/71000952/116627983-2fbc9a80-a91c-11eb-9ffe-cf0a25d58f78.png)
